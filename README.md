@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for a role in **Data Analysis or Fintech**
 
-- 📫 How to reach me **vikram.emany@gmail.com**
+- 📫 Reach me at **vikram.emany@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
